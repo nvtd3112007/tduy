@@ -1,0 +1,2 @@
+# tduy
+full tài nguyên
